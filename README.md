@@ -7,9 +7,9 @@ With 6+ years in US staffing and IT recruitment, I specialize in connecting top 
 - Sourcing IT talent for roles like Software Engineers, Business Analyst, Senior Salesforce Developer, QA/Software Test Engineer, BAckend, Frontend, Full Stack, DevOps, UX/UI Designers, and Cloud Specialists.
 - Tools: JobDiva, Bullhorn, Dice, LinkedIn, Monster.
 
-### Open to Collaborate
-- Hiring for your team? Need a recruiter? Let’s talk!
-- Email: surajsinghten@hotmail.com
+### Your Next Great Hire Starts Here
+- Let’s talk!
+- Personal Email: surajsinghten@hotmail.com
 - LinkedIn: [linkedin.com/in/surajsingh](https://www.linkedin.com/in/techrctr/)
 
 Let’s build great teams together!
